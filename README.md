@@ -2,9 +2,7 @@
 
 ## About the collection
 
-This collection includes Micahel P. Harker photographs of historical barns and out building in Iowa.
-
-These images led to him writing the book, Harker’s Barns: Visions of an American Icon and presenting lectures and exhibits on these photographs.
+Michael P. Harker is an Iowa-based photographer. In 1993 he began a series of photographs of barns and other outbuildings in Iowa. This project grew into a series of lectures, exhibits, and a book entitled Harker's Barns: Visions of an American Icon documenting Iowa's barns. This collection contains a selection of photographs taken for the book.
 
 
 ## License
